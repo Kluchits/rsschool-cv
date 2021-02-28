@@ -7,7 +7,7 @@
 
 ##### Place and Date of Birth: Belarus, Mogilev, 02.03.1987
 ##### Mobile: +375 44 757 46 56
-##### Telegram, Skype: Sergey Kluchits
+##### Telegram, Skype, WhatsApp: Sergey Kluchits
 
 ### About me
 -------------
