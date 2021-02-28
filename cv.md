@@ -1,6 +1,6 @@
 [![CV-picture.jpg](https://i.postimg.cc/nrBZpvJk/CV-picture.jpg)](https://postimg.cc/V0f2F05r)
 
-## Siarhei Kliuchyts
+# Siarhei Kliuchyts
 
 ### Personal data
 -------------
